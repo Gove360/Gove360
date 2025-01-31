@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Gove360
-- 👀 I’m interested in watching movie's 
+- 👀 I’m interested to watching movie's 
 - 🌱 I’m currently learning b-tech-ai&ds
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
